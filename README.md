@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zhaomifan
+- 👀 I’m interested in everything but learning
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me ? now way..
